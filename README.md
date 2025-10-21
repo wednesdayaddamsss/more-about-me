@@ -13,6 +13,7 @@ Not the weird ones , but you know what I mean.
 I also assosiate myself with lady from lady and the tramp !!
 Shes so me trust .. I SAID TRUST.
 
-![Uploading 20250815_234021.jpg…]()
+![20250815_200725](https://github.com/user-attachments/assets/97aeb426-3256-4dbc-b697-00c85271e582)
+
 
 (this is also a wip so yeah.. BYE!!
