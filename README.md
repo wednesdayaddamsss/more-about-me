@@ -10,10 +10,11 @@ is one of my biggest kintypes .
 
 I WILL grow up to be a disney adult !!!
 Not the weird ones , but you know what I mean.
-I also assosiate myself with lady from lady and the tramp !!
+I also assosiate myself with lady from lady and the tramp aswell !!
 Shes so me trust .. I SAID TRUST.
 
-![20250815_200725](https://github.com/user-attachments/assets/97aeb426-3256-4dbc-b697-00c85271e582)
+<img width="736" height="668" alt="image" src="https://github.com/user-attachments/assets/65b7be73-7aed-4ff0-a614-dbe607d807d3" />
+
 
 
 (this is also a wip so yeah.. BYE!!
