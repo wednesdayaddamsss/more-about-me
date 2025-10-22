@@ -10,8 +10,8 @@ is one of my biggest kintypes .
 
 I WILL grow up to be a disney adult !!!
 Not the weird ones , but you know what I mean.
-I also assosiate myself with simba & kiara from the lion king.
-They are so me bro .. 
+I also assosiate myself with simba from the lion king.
+He is so me bro .. 
 
 
 <img width="736" height="668" alt="image" src="https://github.com/user-attachments/assets/65b7be73-7aed-4ff0-a614-dbe607d807d3" />
