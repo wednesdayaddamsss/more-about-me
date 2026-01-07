@@ -1,6 +1,6 @@
 more about me (disney related)
 
-I am a disney addict and I like to go every year.
+I am a disney addict and I go every year.
 Disney dogs & lions are my favorite ! 
 I kin max goof which is goofy's son from A goofy movie !
 Also , I honestly feel like more people should watch desendants ,
